@@ -3,4 +3,4 @@
 
 只做资料提供，不做对错判断
 
-![Example Image](image/[lab.magiconch.com][福音戰士標題生成器]-1718073852322.jpg)
+![Example Image](image/但行好事-莫问前程.png)
